@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with hypershot secret Scripts, the #1 Script. Includes auto-heal and unlimited stamina for unbeatable
 
 
 
